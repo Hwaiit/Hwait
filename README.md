@@ -1,2 +1,2 @@
 # Hi There! 👋
-⚙ Studing Mechanical Engineering right now.
+⚙ Studying Mechanical Engineering right now.
