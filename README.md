@@ -1,2 +1,2 @@
-# Hwait
-My personal repository
+# Hi There! 👋
+⚙ Studing Mechanical Engineering right now.
